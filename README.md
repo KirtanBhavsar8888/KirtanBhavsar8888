@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **katha.kirtan2@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1I_Gz4wTc9Ta7aTNf5G1-BtMDpbDpS46A/view?usp=drivesdk](https://drive.google.com/file/d/1I_Gz4wTc9Ta7aTNf5G1-BtMDpbDpS46A/view?usp=drivesdk)
+- 📄 Know about my experiences [[My Resume](https://drive.google.com/file/d/1YOGtaxQgOYGUe3AFdv_8WvOzmDV_1ztM/view?usp=sharing)]
 
 - ⚡ Fun fact **If I’m not coding, I’m learning how to code better!**
 
